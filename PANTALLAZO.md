@@ -1,1 +1,1 @@
-[Desarrollo-movil.jpg](https://postimg.cc/FYJN3jst)
+[![Desarrollo-movil.jpg](https://i.postimg.cc/NjdFh430/Desarrollo-movil.jpg)](https://postimg.cc/FYJN3jst)
